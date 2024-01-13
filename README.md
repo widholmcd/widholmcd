@@ -8,3 +8,5 @@ I am a **Math 552** student working on my master's in statistics
 + Methodology
 
   Bye :)
+
+What are u still reading for?
